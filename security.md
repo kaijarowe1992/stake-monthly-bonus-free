@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/stake-monthly-bonus-free)
+[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://share.google/zsl5zfCbzSZbTLzC4)
 
 </div>
 
@@ -73,7 +73,7 @@ No cloud telemetry or external logging. All bypass and calculation protocols are
 
 <div align="center">
 
-[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/stake-monthly-bonus-free)
+[![DOWNLOAD](https://img.shields.io/badge/DOWNLOAD-8A2BE2?style=for-the-badge&logo=github)](https://share.google/zsl5zfCbzSZbTLzC4)
 
 </div>
 
